@@ -1,0 +1,3 @@
+# Givings Jetty
+
+A backward glance after the dispute, a rush of blood upon its reciprocation, a renewal of sentiment at the intersection, a blooming of violence across the road, a blunt demand for reprisal two blocks later, a sly departure on the stoop, a falling down up the second-floor stairwell, a refusal to acknowledge near the door, a drowning-out under the oven vent, a misguided aggression into the long-grain rice, a stooping down onto the tile floor, a plea for advice in the neighboring flat, a violent brushing before the mirror, a tentative reparation inside the stained bureau, an act of self-love atop the covers, a shy redial beneath them, a vague contrition through the pillow, a note of renewed defeat toward the ceiling.
