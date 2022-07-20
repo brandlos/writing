@@ -1,20 +1,13 @@
 # Humid Gig
 
-You dealt a blow but I'm careful.
+The truth was like a dog. The wake wasn't frothy. The islands in the fog looked like fingerprint smears on a lens.
 
-Hard stone lapping out
+I don't like to think about superiority anymore.
 
-Trying to say myself.
+To see a spark of joy extinguished is the worst thing. That's what always causes anything. Moving away from maleness reminds others of when their sparks of joy were extinguished. But you can relight it. No one tells them that.
 
-Get at it.
+You need to dry it it out first but you can relight it.
 
-The truth was like a dog.
-While no one was watching, the truth got out.
+Or drink until something happens.
 
-Playground
-
-I don't think about superiority anymore. I like girls more.
-
-The most honest version of it is that my own time is what I'm thinking about when I show you the knowing face when you tell me about it. I have a harder time unless that's true because I have to at least conjure up the whole thing before I can understand. You told me about it and I wanted to be who can show it back.
-
-It was good. I was good when I took out a morsel of some good humor—a little bit. I wasn't when I carried it over to the next friend who was suffering. Usually I have to take a new approach but I don't come up with one in time. I was in the
+I like girls more, you know, because we know the truth is like a dog. It can get out when no one's watching.
